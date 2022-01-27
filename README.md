@@ -26,3 +26,17 @@ Our vision is simply Educate the people,Empower the Freelancers, Evolve to a Sec
 To create a Better platform for testing, sharing and prove the hacking & security skills of the students and professionals.
 
 ----------------------------------
+
+-----Our Social Media Platforms-------
+
+Instagram : https://www.instagram.com/nixie_bytes/
+
+linkedin  : https://in.linkedin.com/company/nixie-bytes-security-team
+
+Youtube   : https://www.youtube.com/channel/UCnXxBE53S5LUFellcLhjnjQ
+
+Facebook  : https://www.facebook.com/NixieBytes
+
+Telegram  : https://t.me/nixie_bytes
+
+Discord   : https://discord.com/invite/ZpnWUDGKc9
